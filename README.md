@@ -6,4 +6,4 @@
 
 📌 Serious buyers only. Let's keep it professional! 🚀
 
-🌐 [Blaze Sonic Labs Link](my.soniclabs.com/points) - Referral Code: `UMU6LM`
+🌐 [Blaze Sonic Labs Link](https://my.soniclabs.com/points) - Referral Code: `UMU6LM`
